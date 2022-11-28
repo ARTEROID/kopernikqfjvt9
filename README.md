@@ -1,1 +1,0 @@
-# kopernikqfjvt9
